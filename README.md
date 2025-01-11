@@ -1,6 +1,6 @@
 # 渔云机场官网cloudfisher地址2025最新入口 + 优惠码
 
-** 渔云机场跑路了吗？ ** cloudfisher跑路了吗？
+**渔云机场跑路了吗？** cloudfisher跑路了吗？
 
 暂时没有。但是机场天生就有跑路风险，老牌机场也有跑路的，为尽可能减少损失，选购套餐可按月支付。
 
@@ -34,11 +34,11 @@ IEPL 专线：所有的节点都使用 IEPL 专线，确保有保证的媒体流
 
 ## 渔云机场cloudfisher套餐价格
 
->Global Acceleration Air：60元/年，148GiB 每月流量，最高 500Mbps 速率**（推荐）**；
+>Global Acceleration Air：60元/年，148GiB 每月流量，最高 500Mbps 速率 **（推荐）**；
 >
 >Global Acceleration Lite：9元/月，120GiB 月流量，最高 300Mbps 速率；
 >
->Global Acceleration Plus：15元/月，300GiB 月流量，最高 500Mbps速率**（推荐）**；
+>Global Acceleration Plus：15元/月，300GiB 月流量，最高 500Mbps速率 **（推荐）**；
 >
 >Global Acceleration Max：25元/月，500GiB 月流量，最高 500Mbps 速率；
 
